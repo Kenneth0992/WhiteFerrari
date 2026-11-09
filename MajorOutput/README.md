@@ -1,2 +1,0 @@
-# CursedRoninAdventure
-Pang grado
